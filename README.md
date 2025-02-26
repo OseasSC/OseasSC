@@ -1,6 +1,5 @@
 ### Howdy, folks! 🚢🏜️
 
-- 🌱 I’m currently learning <img height="20em" src="https://img.shields.io/badge/Salesforce-00A1E0?style=for-the-badge&logo=Salesforce&logoColor=white">
 - 💬 Ask me about computer hardware, games, webnovels, lightnovels, dogs.
 - 📧 How to reach me: oseas.stoterau1@hotmail.com
 - 📮 My LinkedIn: https://www.linkedin.com/in/vitor-oséas-stoterau-22084a263/
