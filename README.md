@@ -1,7 +1,7 @@
 ### Howdy, folks! 🚢🏜️
 
 - 💬 Ask me about computer hardware, games, webnovels, lightnovels, dogs.
-- 📧 How to reach me: oseas.stoterau1@hotmail.com
+- 📧 How to reach me: oseas.stoterau1@gmail.com
 - 📮 My LinkedIn: https://www.linkedin.com/in/vitor-oséas-stoterau-22084a263/
 
 ##
